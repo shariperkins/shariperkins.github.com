@@ -4,7 +4,9 @@ layout: post
 comments: yes
 ---
 
-If Week 3 was difficult because my body was protesting being worked and stretched, this was the week of the uncooperative mind. However, despite the so-called blizzard, I made it to class five out of six days. One was a beginner/intermediate yoga nidra class that was (as advertised) quite relaxing. I also attended a regular beginner/intermediate, two basics, and an open level class. 
+If Week 3 was difficult because my body was protesting being worked and stretched, this was the week of the uncooperative mind. 
+
+However, despite the so-called blizzard, I made it to class five out of six days. One was a beginner/intermediate yoga nidra class that was (as advertised) quite relaxing. I also attended a regular beginner/intermediate, two basics, and an open level class. 
 
 Two things got in the way of my practice: my increasing awareness of how much time I am dedicating to attending the studio almost every day, and my super-critical attitude towards myself.
 
