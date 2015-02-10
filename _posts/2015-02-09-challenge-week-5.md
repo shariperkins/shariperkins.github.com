@@ -12,4 +12,4 @@ Perhaps my greatest revelation this week was the discovery that I am flexible. A
 
 Being called “bendy” and flexible by my yoga teachers is making me question a basic assumption I have had about my own body for much of my life.  It turns out that although I have very tight hamstrings, I am flexible in many other areas. How much else have I taken for granted about my abilities without ever testing them fully?
 
-Once again, I attended class five out of seven days (Three basic classes, one beginner/intermediate, and one open level class). The open level class was particularly fabulous, though I found it challenging to hold many of the poses. At the end of class, I felt euphoric. That is a feeling that I would love to recapture in coming weeks.
+Once again, I attended class five out of seven days (Three basic classes, one beginner/intermediate, and one open level class). The open level class was particularly fabulous, though it tested my endurance. At the end of class, I felt euphoric. That is a feeling that I would love to recapture in coming weeks.
